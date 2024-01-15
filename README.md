@@ -1,2 +1,4 @@
 # mannequinfactory
-![alt text](https://external-media.spacehey.net/media/sfzWEk0Bo7hPoIq-VC4VdLJsH5oGp_oGb-DlaHtCHatc=/https://freaky-fangz.neocities.org/stamps/ANPDOTZ.gif)
+![alt text](https://i.postimg.cc/GTt488NF/blinkies-Cafe-yx.gif)
+
+chronic music addiction, audhd, i bite
